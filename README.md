@@ -5,3 +5,7 @@
 
 ![image](https://github.com/giovannafigueiredo/Python_Mini_Projects/assets/115076626/312b570c-1349-4df7-9600-13767181d7c3)
 
+
+![image](https://github.com/giovannafigueiredo/Python_Mini_Projects/assets/115076626/c2de3c39-0748-4305-87df-1b93c95c3c27)
+
+
